@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي اقترب في صمت الليل
+> دعنا نذوب في هذا العناق
+> شوقي لك مثل نار الدليل
+> يأخذني في بحر الاشتياق
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
